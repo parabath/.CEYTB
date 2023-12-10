@@ -11,7 +11,7 @@ external links to contact,
    *https://www.facebook.com/hashen.sanindu.5?mibextid=ZbWKwL ContenCreator Hashen Sanidhu Samarathunga who likes to make contents 
    *https://www.heladevs.org/ Mr.Kanishka.seniorSoftwareEngineer Mr.Nihal.seniorSoftwareDeveloper
    *https://yakshalang.github.io/ Mr.Bathiya.SoftwareEngineer
-   *https://comradelab.win/ Mr.Aloka.Cyber-security-student.pro
+   *https://comradelab.win/ Mr.Aloka.Cyber-security-student.profesional
    *http://wppsk.epizy.com/?i=1 Prabath .student who like to physics 
    
    
